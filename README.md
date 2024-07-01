@@ -1,6 +1,6 @@
 # [LIVESTREAMs]! Belgium vs France LIVE STreams ON TV Channel 1 July 2024
 France vs. Belgium picks, lineup predictions, live stream: Where to watch Euro 2024 round of 16 online, TV
-FIFA 2018 World Cup semifinal reunion sees Les Bleus and Red Devils meet in Düsseldorf
+FIFA 2018 World Cup semifinal reunion sees Les Bleus and Red Devils meet in Düsseldorf, Germany
 
 This round of 16 matchup is a replay of the FIFA 2018 World Cup semifinal between France and Belgium and headlines the UEFA Euro 2024 round of 16. Didier Deschamps' France team comes up against Domenico Tedesco's side in Düsseldorf on Monday with neither nation yet to show their best in Germany. Both the French and the Belgians unexpectedly finished second in their respective groups while Kylian Mbappe is only just off the mark after scoring in the draw with eliminated Poland in Group D.
 
